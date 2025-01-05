@@ -5,4 +5,4 @@
 - 📫 How to reach me: discord: sergienkost😃
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im making game with my friend and he is making sprites and im coding yeah cool yep
-- 
+- sry if it's cringe
