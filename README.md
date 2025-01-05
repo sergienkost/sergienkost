@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @sergienkost
+- 👀 I’m interested in coding in C#
+- 🌱 I’m currently learning C# and Python
+- 💞️ I’m looking to collaborate on with my best friend
+- 📫 How to reach me: discord: sergienkost😃
+- 😄 Pronouns: ...
+- ⚡ Fun fact: im making game with my friend and he is making sprites and im coding yeah cool yep
+- 
